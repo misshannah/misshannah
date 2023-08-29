@@ -4,7 +4,7 @@
 
 **Portfolio**
 
-Should your curiosity be piqued and your desire for exploration ignited, venture forth to my [digital realm](www.hannaholukoye.com) to feast your eyes upon a selection of my amazing mobile applications, meticulously crafted and published on the esteemed Google Play Store! 
+Should your curiosity be piqued and your desire for exploration ignited, venture forth to my [online portal](www.hannaholukoye.com) to gaze upon a selection of my amazing mobile applications, meticulously crafted and published on the Google Play Store!
 
 🎙️ **Advocacy and Leadership in Tech**
 
